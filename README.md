@@ -9,7 +9,8 @@ I'm transfem, but I prefer he/him and masc nouns.<br>
 C+H is ok. I don't mind talking, either.<br>
 I am part of a system. This is my own account.<br>
 If you know our system/host, I don't mind chatting.<br>
-I am frequently zoomed in to the max. W2I to get my attention.<br>
+I am frequently zoomed in to the max. <br> 
+Whisper to get my attention.<br>
 I tend to be in the safe server.<br>
 Do not act overfamiliar with me if I do not know you.<br><br>
   
