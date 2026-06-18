@@ -12,8 +12,3 @@ If you know our system/host, I don't mind chatting.<br>
 I am frequently zoomed in to the max. <br> 
 Whisper to get my attention.<br>
 I tend to be in the safe server.<br>
-Do not act overfamiliar with me if I do not know you.<br><br>
-  
-<img width="696" height="241" alt="Wildcat Eyes" src="https://github.com/user-attachments/assets/cbd1c144-617e-452a-b557-ff98b3462d9e" />
-
-</div>
